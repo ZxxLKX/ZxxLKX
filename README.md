@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ZxxLKX
+- 👀 I’m interested in Python JavaScript
+- 🌱 I’m currently learning Indonesia
+- 💞️ I’m looking to collaborate on Own
+- 📫 How to reach me Can be on my github
